@@ -5,7 +5,6 @@
 
 - 📫 How to reach me **ccjunior03@gmail.com**
 
-- 📄 Know about my experiences [ChrisRobertsJr_resume.pdf](ChrisRobertsJr_resume.pdf)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
